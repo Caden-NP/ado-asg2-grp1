@@ -1,5 +1,9 @@
 # ADO Assignment 2 - GRP 1
 
 Link to website:
-https://chewjulia1415.wixsite.com/corewear-1 (Direct Consumers)
-https://afiqalias9.wixsite.com/corewearhub   (Wholesalers / Retailers)
+
+https://chewjulia1415.wixsite.com/corewear-1 
+(Direct Consumers)
+
+https://afiqalias9.wixsite.com/corewearhub 
+(Wholesalers / Retailers)
